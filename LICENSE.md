@@ -1,4 +1,4 @@
-# 
+# Automatic PantheonOS themes. Featuring AI-ethics and predictive-analytics — optimized for maximum performance.
 
 
 
